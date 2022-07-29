@@ -1,2 +1,0 @@
-# jamiewest.github.io
-Website
